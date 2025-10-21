@@ -13,42 +13,42 @@ people who ship pedophilic or incestual things or support shipping such things<b
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-My ponies:
-Most Ace Attorney characters, multiple versions of Phoenix and Miles
-Spamton and Tenna (a couple AUs), and my lovely spamtenna shipkid Marshall
-Cross Sans and Nightmare Sans
-3 versions of Ciel Phantomhive
-A single AU Rainbow Dash
-A few Hades and Hades 2 ponies
-Miku
-1 pony from Corpse Party
-Vince and Rody from Deadplate
-My IRL sona
+My ponies:<br>
+Most Ace Attorney characters, multiple versions of Phoenix and Miles<br>
+Spamton and Tenna (a couple AUs), and my lovely spamtenna shipkid Marshall<br>
+Cross Sans and Nightmare Sans<br>
+3 versions of Ciel Phantomhive<br>
+A single AU Rainbow Dash<br>
+A few Hades and Hades 2 ponies<br>
+Miku<br>
+1 pony from Corpse Party<br>
+Vince and Rody from Deadplate<br>
+My IRL sona<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-My Fandoms:
-Ace Attorney
-Vocaloid
-Corpse Party
-Hades
-Deltarune
-Undertale 
+My Fandoms:<br>
+Ace Attorney<br>
+Vocaloid<br>
+Corpse Party<br>
+Hades1 and 2<br>
+Deltarune<br>
+Undertale<br>
 
-Smaller fandoms:
-Hazbin Hotel
-Helluva Boss
-Cult of the Lamb
-Splatoon
-Frostpunk
-The Amazing Digital Circus
-Date Everything!
-Stardew Valley
+Lesser fandoms:<br>
+Hazbin Hotel<br>
+Helluva Boss<br>
+Cult of the Lamb<br>
+Splatoon<br>
+Frostpunk<br>
+The Amazing Digital Circus<br>
+Date Everything!<br>
+Stardew Valley<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-Sign my atabook if you read this far!
-My queer Ace Attorney Discord server! (Approx. 400 members)
+Sign my atabook if you read this far!<br>
+My queer Ace Attorney Discord server! (Approx. 400 members)<br>
 https://discord.gg/Fwgp5A6bUk
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
