@@ -1,6 +1,6 @@
 ## ‧͙⁺˚*･༓☾　About me　☽༓･*˚⁺‧͙
 
-Names: Phoenix, Ciel, Cross, Zag
+Names: Phoenix, Ciel, Cross, Zag<br>
 Pronouns: He/Him, They/Them, Xe/Xim
 Age: 17 (Yes I am sometimes on the 18+ server sue me)
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting
