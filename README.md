@@ -1,15 +1,15 @@
 ## ‧͙⁺˚*･༓☾　About me　☽༓･*˚⁺‧͙
 
 Names: Phoenix, Ciel, Cross, Zag<br>
-Pronouns: He/Him, They/Them, Xe/Xim
-Age: 17 (Yes I am sometimes on the 18+ server sue me)
-Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting
-Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures
+Pronouns: He/Him, They/Them, Xe/Xim<br>
+Age: 17 (Yes I am sometimes on the 18+ server sue me)<br>
+Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting<br>
+Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures<br>
 
-DNI criteria: 
-Homophobic, transphobic, racist, sexist, ableist, pedophile, 
-jokes about SA, Trump supporters, 
-people who ship pedophilic or incestual things or support shipping such things
+DNI criteria: <br>
+Homophobic, transphobic, racist, sexist, ableist, pedophile, <br>
+jokes about SA, Trump supporters, <br>
+people who ship pedophilic or incestual things or support shipping such things<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
