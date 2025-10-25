@@ -5,11 +5,12 @@ Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17 (Yes I am sometimes on the 18+ server sue me)<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting<br>
 Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures<br>
+INFO: C + H okay! Please don't initiate prolonged RP unless I agree to it! Feel free to come up to me and give me a boop or hang out, especially if you have fandoms in common with me! I'm offtab like half the time, but just whisper and say hello! I am somewhat socially awkward, but who on pt isn't tbh. 
 
 DNI criteria: <br>
 Homophobic, transphobic, racist, sexist, ableist, pedophile, <br>
 jokes about SA, Trump supporters, <br>
-people who ship pedophilic or incestual things or support shipping such things<br>
+people who ship pedophilic or incestual things (not including selfcest) or support shipping such things<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
