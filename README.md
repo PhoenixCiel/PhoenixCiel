@@ -26,7 +26,7 @@ A few Hades and Hades 2 ponies<br>
 Miku<br>
 1 pony from Corpse Party<br>
 Vince and Rody from Deadplate<br>
-The TBH creatre<br>
+The TBH creature<br>
 My IRL sona<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
