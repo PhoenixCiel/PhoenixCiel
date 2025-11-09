@@ -39,6 +39,8 @@ Corpse Party<br>
 Hades1 and 2<br>
 Deltarune<br>
 Undertale<br>
+Dead Plate<br>
+Death Note <br>
 
 Lesser fandoms:<br>
 Hazbin Hotel<br>
@@ -52,11 +54,22 @@ Stardew Valley<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
+My kins:<br>
+Phoenix Wright - Ace Attorney <br>
+Rody Lamoree - Dead Plate <br>
+Zagreus - Hades <br>
+Mr. 'Ant' Tenna - Deltarune <br>
+Vox/Vincent - Hazbin Hotel <br>
+Cross Sans - Undertale Alternate Universes <br>
+Light Yagami - Death Note <br>
+
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+
 Sign my atabook if you read this far!<br>
 My queer Ace Attorney Discord server! (Approx. 400 members)<br>
 https://discord.gg/Fwgp5A6bUk
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-Thank you for taking the time to learn a bit about me :) 
-have a wonderful day
+Thank you for taking the time to learn a bit about me :) <br>
+have a wonderful day!
