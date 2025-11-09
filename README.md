@@ -62,6 +62,7 @@ Mr. 'Ant' Tenna - Deltarune <br>
 Vox/Vincent - Hazbin Hotel <br>
 Cross Sans - Undertale Alternate Universes <br>
 Light Yagami - Death Note <br>
+(don't let Light Yagami kin fool you, I am an absolute coward and am vewwy nice) <br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
