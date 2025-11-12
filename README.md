@@ -32,6 +32,7 @@ Vince and Rody from Deadplate<br>
 The TBH creature<br>
 My IRL sona<br>
 Vox and Alastor from Hazbin Hotel<br>
+Lucifer from Hazbin Hotel (inspo for a few aspects of the skin from https://www.youtube.com/watch?v=hwkPY7HwkYg) <br>
 Light Yagami and L Lawliet from Death Note<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
