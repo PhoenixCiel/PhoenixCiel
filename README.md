@@ -5,6 +5,7 @@ Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17 (Yes I am sometimes on the 18+ server sue me)<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting, playing video games, reading fanfics<br>
 Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures<br>
+Autism and ADHD haver (diagnosed) <br>
 <br>
 Ponytown preferences: C + H always okay! Please don't initiate prolonged RP unless I agree to it! Feel free to come up to me and give me a boop or hang out, especially if you have fandoms in common with me! I'm offtab like half the time, but just whisper and say hello! I am somewhat socially awkward, but who on pt isn't tbh.<br>
 If we've talked a little or hung out for a couple minutes, feel free to give me a friend req!! I will pretty much always accept friend reqs.<br>
@@ -41,7 +42,7 @@ My Fandoms:<br>
 Ace Attorney<br>
 Vocaloid<br>
 Corpse Party<br>
-Hades1 and 2<br>
+Hades 1 and 2<br>
 Deltarune<br>
 Undertale<br>
 Dead Plate<br>
