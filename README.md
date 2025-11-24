@@ -15,8 +15,8 @@ Homophobic, transphobic, racist, sexist, ableist, pedophile, Trump supporters, <
 people who ship pedophilic or incestual things (not including selfcest) or support shipping such things<br>
 If you're under 15, int with caution! I won't say don't int at all, but y'know.<br>
 I don't support Vivziepop but I do watch her shows and enjoy them. Please don't int if you are one of those people who can't fathom seperating the art from the artist and will call me every name in the book for enjoying a damn show.<br>
-IF YOU MAKE JOKES ABOUT SA I WILL PROB BLOCK YOU! THAT SHIT IS NOT FUNNY!
-Charlstor shippers DNI... he's literally trying to be her father figure..
+IF YOU MAKE JOKES ABOUT SA I WILL PROB BLOCK YOU! THAT SHIT IS NOT FUNNY!<br>
+Charlstor shippers DNI... <br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
