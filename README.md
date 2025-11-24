@@ -1,6 +1,6 @@
 ## ‧͙⁺˚*･༓☾　About me　☽༓･*˚⁺‧͙
 
-Names: Phoenix, Ciel, Rody, Cross, Zag<br>
+Names: Vincent, Phoenix, Ciel, Rody, Zag<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17 (Yes I am sometimes on the 18+ server sue me the safe server is toxic asf)<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting, playing video games, reading fanfics<br>
