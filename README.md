@@ -1,6 +1,6 @@
 ## ‧͙⁺˚*･༓☾　About me　☽༓･*˚⁺‧͙
 
-Names: Vincent, Phoenix, Ciel, Rody, Zag<br>
+Names: Vincent, Phoenix, Ciel<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting, playing video games, reading fanfics<br>
