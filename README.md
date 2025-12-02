@@ -4,7 +4,7 @@ Names: Vincent, Phoenix, Ciel<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting, playing video games, reading fanfics<br>
-Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures<br>
+Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures, number 1 Vox Hazbin Hotel fan<br>
 Autism and ADHD haver (diagnosed) <br>
 <br>
 Ponytown preferences: C + H always okay! Please don't initiate prolonged RP unless I agree to it! Feel free to come up to me and give me a boop or hang out, especially if you have fandoms in common with me! I'm offtab like half the time, but just whisper and say hello! I am somewhat socially awkward, but who on pt isn't tbh.<br>
@@ -36,20 +36,30 @@ Vox and Alastor from Hazbin Hotel<br>
 Lucifer from Hazbin Hotel (inspo for a few aspects of the skin from https://www.youtube.com/watch?v=hwkPY7HwkYg) <br>
 Light Yagami and L Lawliet from Death Note<br>
 
+Ship int:<br>
+Radiostatic, staticmoth, perhaps a bit of radioapple<br>
+Narumitsu/Wrightworth<br>
+LawLight<br>
+Spamtenna<br>
+Crossmare<br>
+Mikuteto, mikuluka, rinku<br>
+Thanzag<br>
+
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 My Fandoms:<br>
 Ace Attorney<br>
 Vocaloid<br>
+Hazbin Hotel<br>
 Corpse Party<br>
 Hades 1 and 2<br>
 Deltarune<br>
 Undertale<br>
-Dead Plate<br>
-Death Note <br>
+Death Note<br>
+
 
 Lesser fandoms:<br>
-Hazbin Hotel<br>
+Dead Plate<br>
 Helluva Boss<br>
 Cult of the Lamb<br>
 Splatoon<br>
