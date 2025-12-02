@@ -1,4 +1,4 @@
-# ﹏﹏﹏ About me ﹏﹏𓂁﹏
+# ꒷꒦︶꒷꒦︶ ๋ ࣭ About me ꒷꒦︶꒷꒦︶ ๋ ࣭
 
 #### General: <br>
 Names: Vincent, Phoenix, Ciel<br>
