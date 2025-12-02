@@ -1,5 +1,6 @@
 # ﹏﹏﹏ About me ﹏﹏𓂁﹏
 
+#### General: <br>
 Names: Vincent, Phoenix, Ciel<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
 Age: 17<br>
