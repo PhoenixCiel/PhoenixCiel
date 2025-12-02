@@ -22,7 +22,7 @@ Charlstor shippers DNI... <br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-My ponies:<br>
+#### My ponies:<br>
 Most Ace Attorney characters, multiple versions of Phoenix and Miles<br>
 Spamton and Tenna (a couple AUs), and my lovely spamtenna shipkid Marshall<br>
 Cross Sans and Nightmare Sans<br>
@@ -38,7 +38,7 @@ Vox and Alastor from Hazbin Hotel<br>
 Lucifer from Hazbin Hotel (inspo for a few aspects of the skin from https://www.youtube.com/watch?v=hwkPY7HwkYg) <br>
 Light Yagami and L Lawliet from Death Note<br>
 
-Ship int:<br>
+#### Ship int:<br>
 Radiostatic, staticmoth, perhaps a bit of radioapple<br>
 Narumitsu/Wrightworth<br>
 LawLight<br>
@@ -49,7 +49,7 @@ Thanzag<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-My Fandoms:<br>
+#### My Fandoms:<br>
 Ace Attorney<br>
 Vocaloid<br>
 Hazbin Hotel<br>
@@ -60,7 +60,7 @@ Undertale<br>
 Death Note<br>
 
 
-Lesser fandoms:<br>
+#### Lesser fandoms:<br>
 Dead Plate<br>
 Helluva Boss<br>
 Cult of the Lamb<br>
@@ -72,7 +72,7 @@ Stardew Valley<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-Kins + Favs:<br>
+#### Kins + Favs:<br>
 Phoenix Wright - Ace Attorney <br>
 Rody Lamoree - Dead Plate <br>
 Zagreus - Hades <br>
