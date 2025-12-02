@@ -11,7 +11,7 @@ Ponytown preferences: C + H always okay! Please don't initiate prolonged RP unle
 If we've talked a little or hung out for a couple minutes, feel free to give me a friend req!! I will pretty much always accept friend reqs.<br>
 I usually will read someone's github or patreon if they have it linked so I know what their boundaries are! If I ever end up saying smth that makes you uncomfy, please tell me!<br> 
 
-DNI criteria: <br>
+# DNI criteria: <br>
 Homophobic, transphobic, racist, sexist, ableist, pedophile, Trump supporters, <br>
 people who ship pedophilic or incestual things (not including selfcest) or support shipping such things<br>
 If you're under 15, int with caution! I won't say don't int at all, but y'know.<br>
