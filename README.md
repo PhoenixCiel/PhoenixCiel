@@ -1,4 +1,4 @@
-#                                                                                                                                                                                         ﮩ٨ـﮩﮩ٨ـ About Me ﮩ٨ـﮩﮩ٨ـ
+# ⋆.˚ ⚡︎ .⭒˚About Me˚⭒. ⚡︎ ˚.⋆
 #### General: <br>
 Names: Vincent, Phoenix, Ciel<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
