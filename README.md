@@ -18,7 +18,7 @@ people who ship pedophilic or incestual things (not including selfcest) or suppo
 If you're under 15, int with caution! I won't say don't int at all, but y'know.<br>
 I don't support Vivziepop but I do watch her shows and enjoy them. Please don't int if you are one of those people who can't fathom seperating the art from the artist and will call me every name in the book for enjoying a damn show.<br>
 IF YOU MAKE JOKES ABOUT SA I WILL PROB BLOCK YOU! THAT SHIT IS NOT FUNNY!<br>
-Charlstor shippers DNI... <br>
+Charlstor shippers and Narumayo shippers DNI... <br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
@@ -39,7 +39,7 @@ Lucifer from Hazbin Hotel (inspo for a few aspects of the skin from https://www.
 Light Yagami and L Lawliet from Death Note<br>
 
 #### Ship int:<br>
-Radiostatic, staticmoth, perhaps a bit of radioapple<br>
+Radiostatic is my fav, staticmoth is great, and I am a certified radioapple respecter and enjoyer<br>
 Narumitsu/Wrightworth<br>
 LawLight<br>
 Spamtenna<br>
