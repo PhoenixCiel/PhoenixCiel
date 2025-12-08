@@ -1,4 +1,4 @@
-#  ❤️ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+#                                                                                                                                                                                  ﮩ٨ـﮩﮩ٨ـ About Me ﮩ٨ـﮩﮩ٨ـ
 
 #### General: <br>
 Names: Vincent, Phoenix, Ciel<br>
