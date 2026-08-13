@@ -1,11 +1,11 @@
 # ⋆.˚ ⚡︎ .⭒˚About Me˚⭒. ⚡︎ ˚.⋆
 #### General: <br>
-Names: Vincent, Phoenix, Ciel<br>
+Name: Vincent (and any derivative nicknames)<br>
 Pronouns: He/Him, They/Them, Xe/Xim<br>
-Age: 17<br>
+Age: 18<br>
 Hobbies: Drawing, sewing, Perler bead art, kandi, singing, acting, playing video games, reading fanfics<br>
 Fun facts: I have a cat named Pearl, I run an Ace Attorney Discord server (link at the bottom!), I collect Miku figures, number 1 Vox Hazbin Hotel fan<br>
-Autism and ADHD haver (diagnosed) <br>
+Autism and ADHD haver (diagnosed), please be patient <br>
 <br>
 #### Ponytown preferences:<br>
 C + H always okay! Please don't initiate prolonged RP unless I agree to it! Feel free to come up to me and give me a boop or hang out, especially if you have fandoms in common with me! I'm offtab like half the time, but just whisper and say hello! I am somewhat socially awkward, but who on pt isn't tbh.<br>
@@ -37,8 +37,11 @@ My IRL sona<br>
 Vox and Alastor from Hazbin Hotel<br>
 Lucifer from Hazbin Hotel (inspo for a few aspects of the skin from https://www.youtube.com/watch?v=hwkPY7HwkYg) <br>
 Light Yagami and L Lawliet from Death Note<br>
+Simon The Convict from Iron Lung<br>
+Ryland Grace from PHM<br>
 
 #### Ship int:<br>
+Bloodymary!!<br>
 Radiostatic is my fav, staticmoth is great, and I am a certified radioapple respecter and enjoyer<br>
 Narumitsu/Wrightworth<br>
 LawLight<br>
@@ -50,6 +53,10 @@ Thanzag<br>
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 #### My Fandoms:<br>
+Iron Lung<br>
+Project Hail Mary<br>
+Alien Stage<br>
+The Amazing Digital Circus<br>
 Ace Attorney<br>
 Vocaloid<br>
 Hazbin Hotel<br>
@@ -66,13 +73,12 @@ Helluva Boss<br>
 Cult of the Lamb<br>
 Splatoon<br>
 Frostpunk<br>
-The Amazing Digital Circus<br>
 Date Everything!<br>
 Stardew Valley<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-#### Copinglinks + Favs:<br>
+#### Favs:<br>
 Phoenix Wright - Ace Attorney <br>
 Rody Lamoree - Dead Plate <br>
 Zagreus - Hades <br>
@@ -80,11 +86,12 @@ Mr. 'Ant' Tenna - Deltarune <br>
 Vox/Vincent - Hazbin Hotel <br>
 Cross Sans - Undertale Alternate Universes <br>
 Light Yagami - Death Note <br>
+Simon - Iron Lung
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 Sign my atabook if you read this far!<br>
-My queer Ace Attorney Discord server! (Approx. 400 members)<br>
+My queer Ace Attorney Discord server! (Approx. 600 members)<br>
 https://discord.gg/Fwgp5A6bUk
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
